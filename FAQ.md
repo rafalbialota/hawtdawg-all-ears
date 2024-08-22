@@ -6,6 +6,10 @@ We know you want to show off your fabulous furry facy, so we've given you spact 
 For those who are camera-shy, we recommend posting at least one to bring your profile some attention. 
 Showcase your best self-whether that means a fresh-from-the-groomer glamour shot or an action shot from your last game of fetch. 
 
+- I added this one
+- And this one
+- This was I - sagita!
+
 ## Where do I list my favorite treats?
  
 Open the Hawt Dawg app and click on "Edit Profile." 
